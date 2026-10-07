@@ -1,0 +1,2 @@
+# premium-collar-draft-001-collar-draft-notch-lapel-tai
+Stop guessing on collar proportions and spending hours redrafting notch lapels. The Collar Draft &amp; Notch Lapel Tailor Craft Lab is a precision-engineered Notion template that eliminates pattern rework and transforms collar design from guesswork into measurable craft.  This is the only Notion-based collar drafting system built specifically for tailo
